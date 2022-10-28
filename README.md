@@ -10,7 +10,6 @@
 
  I’ll be there for you always, easily at: 
  
- - Contact email: miguelmm2507@gmail.com 
  - To know more about me: https://www.linkedin.com/in/miguelm25m/ 
  
  Have a good time here, every project has academic purpose, feel free to use them! 
